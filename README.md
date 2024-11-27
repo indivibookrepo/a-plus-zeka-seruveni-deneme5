@@ -1,0 +1,1 @@
+# a-plus-zeka-seruveni-deneme5
